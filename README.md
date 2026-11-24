@@ -8,9 +8,9 @@ Entry for the [Angry Judge: The Short Rant Contest](https://make.fun/bounty/u-ri
 
 ## The rant
 
-> The printer has one job and it chose violence: it eats the paper, flashes a light I cannot Google, and prints a blank page with total confidence while the meeting starts in four minutes.
+> My GPS rerouted me down a dirt track, past a sign that said NO ROAD, and announced 'you have arrived' in the middle of a field. There was a cow. The cow looked disappointed in me too.
 
-186 characters — inside the 400-character cap.
+183 characters — inside the 400-character cap.
 
 ## How it works
 
